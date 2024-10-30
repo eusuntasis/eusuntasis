@@ -1,5 +1,5 @@
-# 💫 About Me:
-🌌 I am currently working on the AsisDDOS tool <br>⭐ I am passionate about cyber security, ethical hacking and programming <br>🪐 16 yo<br>📍İzmir, Türkiye<br>🐰 I LOVE KALI LINUX <3
+# 卍 About Me:
+☪ 𝙄 𝙖𝙢 𝙘𝙪𝙧𝙧𝙚𝙣𝙩𝙡𝙮 𝙬𝙤𝙧𝙠𝙞𝙣𝙜 𝙤𝙣 𝙩𝙝𝙚 𝘼𝙨𝙞𝙨𝘿𝘿𝙊𝙎 𝙩𝙤𝙤𝙡 <br>☭ 𝙄 𝙖𝙢 𝙥𝙖𝙨𝙨𝙞𝙤𝙣𝙖𝙩𝙚 𝙖𝙗𝙤𝙪𝙩 𝙘𝙮𝙗𝙚𝙧 𝙨𝙚𝙘𝙪𝙧𝙞𝙩𝙮, 𝙚𝙩𝙝𝙞𝙘𝙖𝙡 𝙝𝙖𝙘𝙠𝙞𝙣𝙜 𝙖𝙣𝙙 𝙥𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙞𝙣𝙜 <br>🪐 16 yo<br>📍İzmir, Türkiye<br>🐰 I LOVE KALI LINUX <3
 
 
 ## 🌐 Socials:
