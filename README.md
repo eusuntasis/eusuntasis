@@ -2,7 +2,7 @@
 ☪ 𝙄 𝙖𝙢 𝙘𝙪𝙧𝙧𝙚𝙣𝙩𝙡𝙮 𝙬𝙤𝙧𝙠𝙞𝙣𝙜 𝙤𝙣 𝙩𝙝𝙚 𝘼𝙨𝙞𝙨𝘿𝘿𝙊𝙎 𝙩𝙤𝙤𝙡 <br>☭ 𝙄 𝙖𝙢 𝙥𝙖𝙨𝙨𝙞𝙤𝙣𝙖𝙩𝙚 𝙖𝙗𝙤𝙪𝙩 𝙘𝙮𝙗𝙚𝙧 𝙨𝙚𝙘𝙪𝙧𝙞𝙩𝙮, 𝙚𝙩𝙝𝙞𝙘𝙖𝙡 𝙝𝙖𝙘𝙠𝙞𝙣𝙜 𝙖𝙣𝙙 𝙥𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙞𝙣𝙜 <br> ♥ 𝟭𝟲 𝘆𝗼<br>.♡ 🦋 𝘐 𝘓𝘖𝘝𝘌 𝘉𝘓𝘈𝘊𝘒𝘈𝘙𝘊𝘏 <3
 
 ## 🌐 Socials:
-[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sisu_.bh) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@sisutheblackhat) 
+[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/asisss_.sb) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@sisutheblackhat) 
 [![Twitter](https://img.shields.io/badge/Twitter-1DA1F2?style=for-the-badge&logo=twitter&logoColor=white)](https://x.com/therootedkiddie) 
 
 # 💻 Tech Stack:
