@@ -1,5 +1,5 @@
 # 💙 About Me:
-🕵️ ꜰʀᴏɴᴛ-ᴇɴᴅ ᴅᴇᴠᴇʟᴏᴘᴇʀ & ᴘᴇɴᴛᴇꜱᴛᴇʀ <br>🌃 𝘐 𝘜𝘚𝘌 𝘈𝘙𝘊𝘏 𝘉𝘛𝘞 <3
+🕵️ ꜰʀᴏɴᴛ-ᴇɴᴅ ᴅᴇᴠᴇʟᴏᴘᴇʀ & ᴘᴇɴᴛᴇꜱᴛᴇʀ // 🌃 𝘐 𝘜𝘚𝘌 𝘈𝘙𝘊𝘏 𝘉𝘛𝘞 <3
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/asisss_.sb) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@asisul) 
